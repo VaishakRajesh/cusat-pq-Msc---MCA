@@ -1,0 +1,1 @@
+CUSAT MCA PQ and Msc PQ
